@@ -1,4 +1,4 @@
- 👋 Hi, I’m @apoorva5274
+ 👋 Hi, I’m @Apoorva
  
  👀 I’m interested in coding, digital arts, and music
  
